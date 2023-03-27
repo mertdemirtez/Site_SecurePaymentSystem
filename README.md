@@ -18,8 +18,6 @@
 
 ![5](https://user-images.githubusercontent.com/101717064/228056444-ed79cdbe-7b96-4a14-9d2e-e4db7f805608.png)
 
-![5](https://user-images.githubusercontent.com/101717064/228056455-57c0e37b-80b9-492f-8258-eada6c78afa1.png)
-
 ![6](https://user-images.githubusercontent.com/101717064/228056470-fe234c6c-3979-45ac-8eec-a14664181bd0.png)
 
 # 🅲🅾🅽🆃🅰🅲🆃 🅵🅾🆁 🅼🅴
